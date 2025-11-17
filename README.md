@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **shivampathak5566677@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1pS1Du-ToNIvrjVTr0klYFMw7KlQmKv2k/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1yNpCEFOUeGCSZND2cOoafezSlBOKtRZg/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
